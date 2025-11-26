@@ -1,0 +1,2 @@
+# lakitechsolutionn
+software developer
